@@ -1,4 +1,4 @@
-![wakatime](https://wakatime.com/badge/user/76898223-bdcf-4ad6-a5ff-8ad589e21792.svg)
+![wakatime](https://wakatime.com/share/@Kycb42148/4b3effce-f44e-4713-91db-a17cbc449683.svg)
 
 <!--![WakaTime language stats](https://wakatime.com/badge/user/76898223-bdcf-4ad6-a5ff-8ad589e21792.svg)-->
 
